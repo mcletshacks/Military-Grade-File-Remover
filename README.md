@@ -1,3 +1,6 @@
+the most overcomplexed version again.. BUT terry davis approved it!!
+---
+
 Congratulations  
 you found a tool that doesnt just delete files.. it erases their memory from the fucking timeline
 
